@@ -223,3 +223,122 @@
 でも、ちゃんと みて、ちゃんと きかないと、
 わからないことが ある。
 
+
+
+Title: Tell Me How You Feel
+~ Keisuke Meets the Beast ~
+
+Target: 5-6 years old / 24 pages / 30-70 characters per page
+Note: The beast’s cry "Wrrraaa-gh!" starts as a roar and ends with a sharp, choked "gh," signifying intense pain.
+
+--- The Beginning ---
+1. Introduction
+Once upon a time, deep in a distant mountain, there was a forest where no one dared to go. Do you know why everyone stayed away?
+(46 characters)
+
+2. The Beast Appears
+Why did they stay away? Because at night, a giant beast with glowing red eyes would appear, screaming with a voice that shook the trees. Spikes grew all over its body. It looked very, very scary.
+(78 characters)
+
+3. The Rampage
+“Wrrraaa-gh!!!” Every night, the beast ran through the forest. It crushed flowers, snapped branches, and chased the little animals, screaming the whole time.
+(65 characters)
+
+4. The Hurt Animals
+“The tree that was my home is broken…” sobbed the Squirrel. “I got scratched by a spike, too,” said the Rabbit.
+(52 characters)
+
+5. The Decision
+The other animals nodded sadly. “That beast is scary. We must never go near it,” they all agreed.
+(44 characters)
+
+--- The Encounter ---
+6. Enter Koro
+One day, a little bear named Koro lost his way and wandered into that very forest.
+(37 characters)
+
+7. Frozen with Fear
+Suddenly—rustle, rustle! The beast appeared. Koro tried to run, but his legs were shaking so hard he couldn't move a muscle.
+(52 characters)
+
+8. Koro’s Memory (Part 1)
+In that moment, Koro remembered something from a long time ago.
+(26 characters)
+
+9. Koro’s Memory (Part 2)
+“A bear! How scary!” a child in town had shouted before running away. Koro hadn't done anything. He was just standing there.
+(55 characters)
+
+--- The Clash ---
+10. The Roar
+Suddenly, the beast let out a “Wrrraaa-gh!!!” and charged straight at Koro! Koro jumped out of the way, but a spike grazed his arm, leaving a small scratch.
+(65 characters)
+
+11. Tears in the Footprints
+The beast vanished into the dark woods. Koro looked down at the ground where the beast had run. There, among the crushed flowers, something was shimmering.
+(68 characters)
+
+12. Noticing the Tears
+Koro knelt down and touched it gently. “…A tear?” His arm hurt, but Koro stared deep into the forest.
+(52 characters)
+
+--- The Chase ---
+13. Koro’s Call (Part 1)
+Koro started to run. Even though his arm hurt, even though the spikes were scary. “Are you crying?!” he shouted into the woods.
+(53 characters)
+
+14. Koro’s Call (Part 2)
+The beast was still thashing about. More spikes hit Koro, and his scratches grew. Still, Koro cried out, “Tell me how you feel!!”
+(60 characters)
+
+15. Koro’s Call (Part 3)
+The beast kept screaming. Koro screamed back with all his heart, “You’re crying, aren’t you?! Please, tell me how you feel!!”
+(50 characters)
+
+--- The Silence ---
+16. The Beast Stops
+The beast stopped dead in its tracks. A tiny bear, covered in scratches, was staring right at him. The forest fell into a deep silence.
+(57 characters)
+
+17. Shivering
+The beast was trembling. Its giant body shook more and more. Exhausted from screaming, it sank heavily to the ground.
+(54 characters)
+
+--- The Realization ---
+18. The Tear Tracks
+Koro stepped closer. Under the beast's eyes were jagged lines, like lightning. “…Those are tear tracks.” Its eyes were red because it had been crying all this time.
+(65 characters)
+
+19. The Spikes
+Did the spikes grow from its body? No. As Koro reached out to the shivering beast, he realized the truth. The spikes were actually stuck into its skin.
+(65 characters)
+
+--- The Truth ---
+20. The Answer to the Roar
+The beast spoke for the very first time. “It hurt… it hurt so much. Nobody understood… so I just kept screaming.”
+(57 characters)
+
+21. Removing the Spikes
+Gently, Koro began to pull the spikes out. One by one. The beast winced in pain but stayed very, very still.
+(52 characters)
+
+22. The Change
+When the last spike was gone, the beast’s red eyes slowly turned into a soft, warm color. The shaking and the tears finally stopped.
+(52 characters)
+
+--- The Conclusion ---
+23. Reconciliation
+The beast smiled for the first time. “I’m sorry I was so wild. I was just in so much pain,” it whispered. The Squirrel and Rabbit crept closer, too.
+(62 characters)
+
+24. The Final Question
+A child who looks scary, or a child who looks angry—I wonder how they really feel inside? Let’s try calling out like Koro did. “Tell me how you feel.”
+(60 characters)
+
+Afterword
+Theme of this Book:
+It is natural for the hurt animals to be afraid.
+Koro was able to step forward—even while getting hurt—because he knew that same feeling of loneliness.
+Someone might look scary. Someone might look angry.
+But unless you truly look and truly listen, there are things you will never understand.
+
